@@ -1,1 +1,1 @@
-https://Nyjinia.github.io/AvtoAV/
+https://nyjinia.github.io/Kurska/
